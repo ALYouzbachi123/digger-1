@@ -1,2 +1,2 @@
 # digger
-jhgjkjlköklöölk
+Netzteil noch nicht lauffähig
